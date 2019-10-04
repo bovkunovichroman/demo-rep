@@ -1,0 +1,2 @@
+I know that the spades are the swords of a soldier
+I know that the clubs are weapons of war
